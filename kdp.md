@@ -8,7 +8,6 @@ Throughout the book, the author provides practical strategies and techniques for
 
 The List Maker's Formula is an essential read for anyone who wants to improve their productivity and achieve their goals. It challenges conventional wisdom about time management and offers a fresh perspective on how to approach complex tasks with clarity and focus. Whether you are a student, entrepreneur, or busy professional, this book will inspire and empower you to become an effective list maker and achieve success in all areas of your life.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
