@@ -1,4 +1,4 @@
-Chapter 10: Creating a Long-Term Plan for Maintaining List-Making Habits
+Creating a Long-Term Plan for Maintaining List-Making Habits
 ========================================================================
 
 In this chapter, we will focus on the importance of creating a long-term plan to establish and maintain effective list-making habits. Consistency is key when it comes to achieving goals, and a well-designed plan can help you develop a sustainable routine that maximizes the benefits of list-making. By following the strategies outlined in this chapter, you can cultivate a lifelong habit of productive and organized list-making.

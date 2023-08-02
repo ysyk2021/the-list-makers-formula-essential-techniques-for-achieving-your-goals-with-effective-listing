@@ -1,4 +1,4 @@
-Chapter 12: Cultivating a Productive Mindset Over Time
+Cultivating a Productive Mindset Over Time
 ======================================================
 
 In this chapter, we will explore the importance of cultivating a productive mindset over time when it comes to achieving your goals through effective listing. Your mindset plays a crucial role in determining your success, productivity, and overall well-being. By developing a positive and growth-oriented mindset, you can enhance your focus, motivation, and resilience, allowing you to make the most of your list-making efforts.

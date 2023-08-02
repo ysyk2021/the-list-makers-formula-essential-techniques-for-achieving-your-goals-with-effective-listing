@@ -1,4 +1,4 @@
-Chapter 9: Overcoming Obstacles by Breaking Down Tasks into Manageable Steps
+Overcoming Obstacles by Breaking Down Tasks into Manageable Steps
 ============================================================================
 
 In this chapter, we explore the powerful technique of breaking down tasks into manageable steps to overcome obstacles and ensure progress towards achieving your goals. By dissecting complex tasks into smaller, more achievable components, individuals can navigate challenges with ease and maintain momentum throughout their journey.

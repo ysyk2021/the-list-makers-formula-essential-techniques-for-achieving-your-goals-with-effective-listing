@@ -1,4 +1,4 @@
-Chapter 10: Staying Motivated by Celebrating Small Successes
+Staying Motivated by Celebrating Small Successes
 ============================================================
 
 In this chapter, we will explore the power of celebrating small successes as a means to stay motivated throughout your goal-setting journey. Recognizing and acknowledging your achievements, no matter how small, can provide a tremendous boost to your motivation, confidence, and overall satisfaction. By incorporating the practice of celebrating small successes into your list-making routine, you can maintain a positive mindset and propel yourself towards even greater accomplishments.

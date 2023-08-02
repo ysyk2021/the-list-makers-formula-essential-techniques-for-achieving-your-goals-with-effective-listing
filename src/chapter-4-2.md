@@ -1,4 +1,4 @@
-Chapter 7: Automating Routine Tasks with Lists
+Automating Routine Tasks with Lists
 ==============================================
 
 In today's fast-paced world, finding ways to automate routine tasks can significantly increase productivity and free up time for more important activities. Lists, when used strategically, can serve as a powerful tool for automating these tasks, allowing you to streamline your workflow and achieve your goals more efficiently. In this chapter, we will explore how to automate routine tasks using lists.

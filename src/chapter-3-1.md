@@ -1,4 +1,4 @@
-Chapter 4: Creating a List-Making System That Works for You
+Creating a List-Making System That Works for You
 ===========================================================
 
 Creating an effective list-making system is crucial for harnessing the full potential of listing. By developing a system that aligns with your unique needs and preferences, you can optimize organization, productivity, and goal attainment. In this chapter, we will explore practical techniques to help you design a list-making system that works for you.

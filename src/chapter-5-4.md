@@ -1,4 +1,4 @@
-Chapter 5: Developing Resilience and Persistence Through Effective List-Making
+Developing Resilience and Persistence Through Effective List-Making
 ==============================================================================
 
 In this chapter, we will explore how effective list-making techniques can help develop resilience and persistence. Resilience and persistence are vital qualities that enable individuals to overcome challenges, stay focused, and achieve their goals. By incorporating specific strategies into your list-making process, you can enhance your ability to bounce back from setbacks, maintain motivation, and push through difficult times.

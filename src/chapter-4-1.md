@@ -1,4 +1,4 @@
-Chapter 10: Implementing Time-Saving Techniques through List-Making
+Implementing Time-Saving Techniques through List-Making
 ===================================================================
 
 In our fast-paced world, time is a valuable resource. To achieve our goals effectively, it is crucial to optimize our time management. List-making is a powerful technique that can help us save time and increase our productivity. In this chapter, we will explore various time-saving techniques that can be implemented through list-making.

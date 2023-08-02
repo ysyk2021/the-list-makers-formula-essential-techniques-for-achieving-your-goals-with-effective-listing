@@ -1,4 +1,4 @@
-Chapter 6: Identifying Common Barriers to Effective List-Making
+Identifying Common Barriers to Effective List-Making
 ===============================================================
 
 In this chapter, we delve into the common barriers that hinder effective list-making. Understanding these obstacles is crucial for individuals seeking to improve their list-making skills and optimize their productivity. By identifying and addressing these barriers, individuals can overcome challenges and achieve their goals more efficiently.

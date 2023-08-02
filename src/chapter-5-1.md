@@ -1,4 +1,4 @@
-Chapter 8: Building Momentum by Regularly Checking off Items on Lists
+Building Momentum by Regularly Checking off Items on Lists
 =====================================================================
 
 In this chapter, we will explore the powerful strategy of building momentum by regularly checking off items on lists. By consistently marking tasks as completed, you can create a sense of achievement, boost motivation, and propel yourself forward in achieving your goals. Let's delve into how this technique can enhance your productivity and effectiveness.

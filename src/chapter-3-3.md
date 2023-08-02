@@ -1,4 +1,4 @@
-Chapter 4: Using Different Types of Lists for Different Purposes
+Using Different Types of Lists for Different Purposes
 ================================================================
 
 In this chapter, we will explore the concept of using different types of lists for different purposes. By understanding and utilizing various list formats, individuals can effectively manage their tasks, projects, and goals. Each type of list serves a specific function and caters to unique needs. Let's delve into the different types of lists and how they can be applied in a practical manner.
