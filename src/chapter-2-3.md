@@ -44,6 +44,4 @@ If you answered "yes" to any of these questions, it may be an indication that yo
 Embracing Effective List-Making Techniques
 ------------------------------------------
 
-Recognizing the adverse effects of poor list-making is the first step towards transforming habits and enhancing personal and professional outcomes. By implementing effective list-making techniques, individuals can overcome the challenges posed by inadequate lists. In the following chapters, we will explore key strategies and techniques to optimize list creation, prioritization, organization, and execution, enabling individuals to achieve their goals and lead more fulfilling lives.
-
-Remember, it's never too late to reassess and improve your approach to list-making. By recognizing the impact of poor list-making on your personal and professional life, you have taken an important step towards a more productive and well-balanced future.
+Recognizing the adverse effects of poor list-making is the first step towards transforming habits and enhancing personal and professional outcomes. By implementing effective list-making techniques, individuals can overcome the challenges posed by inadequate lists.
