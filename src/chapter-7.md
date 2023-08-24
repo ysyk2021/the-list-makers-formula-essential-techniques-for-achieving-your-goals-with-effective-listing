@@ -1,5 +1,3 @@
-Sustaining Your List-Making Habits
-==================================
 
 Creating a list of goals and tasks is easy, but maintaining the habit of list-making can be challenging. In this chapter, we will discuss how to sustain your list-making habits in the long run.
 

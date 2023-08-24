@@ -1,5 +1,3 @@
-Understanding the Power of Lists
-================================
 
 Lists are a powerful tool for increasing productivity and achieving goals. In this chapter, we will explore the nature of lists, their impact on productivity, common barriers to effective list-making, and the impact of poor list-making on personal and professional life.
 

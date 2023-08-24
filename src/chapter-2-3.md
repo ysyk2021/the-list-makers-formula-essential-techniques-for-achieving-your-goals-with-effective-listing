@@ -1,5 +1,3 @@
-Recognizing the Impact of Poor List-Making on Personal and Professional Life
-=======================================================================================
 
 In this chapter, we explore the detrimental effects of poor list-making on both personal and professional life. By understanding the consequences of ineffective list-making techniques, individuals can recognize the importance of improving their approach to lists and unleash their full potential for success.
 

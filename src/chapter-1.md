@@ -1,5 +1,3 @@
-Introduction
-============
 
 Welcome to "The List Maker's Formula: Essential Techniques for Achieving Your Goals with Effective Listing". This book is designed to help you become a more effective list maker, and achieve greater success in all areas of your life.
 

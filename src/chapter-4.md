@@ -1,5 +1,3 @@
-Maximizing Your Productivity with Lists
-=======================================
 
 Lists are a powerful tool for maximizing your productivity and achieving your goals. In this chapter, we will discuss several techniques for using lists to increase your efficiency and effectiveness in different areas of your work and life.
 

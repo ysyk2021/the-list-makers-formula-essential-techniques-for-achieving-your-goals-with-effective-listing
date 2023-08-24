@@ -1,4 +1,4 @@
-# Introduction
+
 
 The List Maker's Formula: Essential Techniques for Achieving Your Goals with Effective Listing is a book that explores the power of effective listing and how it can help us achieve our goals and improve our productivity. The author presents a compelling argument that by adopting the list maker's formula, we can break down complex tasks into manageable steps, prioritize effectively, and make lasting changes to our productivity habits.
 

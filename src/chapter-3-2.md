@@ -1,5 +1,3 @@
-Identifying Priorities and Setting Goals
-===================================================
 
 In this chapter, we will discuss the importance of identifying priorities and setting goals when it comes to effective listing. The ability to determine what matters most and establish clear objectives is crucial for achieving success and staying focused. By following the techniques outlined in this chapter, you will be able to prioritize effectively and set goals that align with your aspirations.
 

@@ -1,5 +1,3 @@
-Multitasking Effectively with Lists
-==============================================
 
 In this chapter, we explore the art of multitasking with lists and how it can enhance productivity and goal achievement. With the right strategies and techniques, individuals can leverage the power of lists to juggle multiple tasks efficiently and maximize their effectiveness.
 

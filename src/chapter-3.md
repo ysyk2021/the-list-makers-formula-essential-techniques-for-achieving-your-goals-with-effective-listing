@@ -1,5 +1,3 @@
-Developing Effective Lists
-==========================
 
 Developing effective lists is essential for maximizing your productivity and achieving your goals. In this chapter, we will discuss several techniques for developing effective lists.
 

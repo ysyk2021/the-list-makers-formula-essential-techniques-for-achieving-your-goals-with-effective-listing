@@ -1,5 +1,3 @@
-Staying Motivated and Overcoming Obstacles
-==========================================
 
 Effective list-making is a powerful tool for achieving success in all areas of life. However, staying motivated and overcoming obstacles can be challenging. In this chapter, we will explore how to stay motivated and overcome obstacles through effective list-making.
 

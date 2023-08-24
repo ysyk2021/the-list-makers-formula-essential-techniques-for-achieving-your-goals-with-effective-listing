@@ -1,5 +1,3 @@
-Using Feedback to Improve Collaboration Through Lists
-================================================================
 
 In this chapter, we delve into the importance of feedback in enhancing collaboration through lists. By leveraging the power of feedback, teams can optimize their list-making processes, foster effective communication, and achieve their goals more efficiently. Let's explore how feedback can be utilized to improve collaboration through lists.
 
